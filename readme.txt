@@ -3,4 +3,4 @@
 hi humans
 
 pranathi here,brahm works pvt ltd
-im internship here
+im doing internship here
